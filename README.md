@@ -1,1 +1,1 @@
-# site de infórmatica do andre
+# site de vendas  do andre
